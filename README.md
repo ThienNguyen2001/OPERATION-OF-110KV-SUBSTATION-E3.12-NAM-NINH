@@ -1,1 +1,9 @@
 # OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/1.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/2.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/3.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/4.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/5.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/6.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/7.png)
+![Image Alt](https://github.com/ThienNguyen2001/OPERATION-OF-110KV-SUBSTATION-E3.12-NAM-NINH/blob/138849e58824ab4af912ddce329eb7d4890b0a11/8.png)
